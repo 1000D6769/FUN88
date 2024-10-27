@@ -1,4 +1,4 @@
-# FUN88
+# 1000D
 
 [FUN88](https://fun88webs.com/) – Gia Nhập Vào Nhà Cái Chuẩn Châu Âu - FUN88
 
